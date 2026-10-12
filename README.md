@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ZeroKuroShin
-- 👀 I’m interested in Codding
-- 🌱 I’m currently learning Codding
-- 💞️ I’m looking to collaborate on Game developer
+- 👀 I’m interested in Codding, Trading, and Investing
+- 🌱 I’m currently learning Charting
+- 💞️ I’m looking fr crypto group & stock group
 - 📫 How to reach me I don't know :D
 
 <!---
